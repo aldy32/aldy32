@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nadies
 - 📫 How to reach me por redes
 - 😄 Pronouns: Peke
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: me gusta aprender cada dia 
 
 <!---
 aldy32/aldy32 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
