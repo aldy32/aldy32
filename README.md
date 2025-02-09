@@ -2,8 +2,8 @@
 - 👀 I’m interested in program
 - 🌱 I’m currently learning curiosity
 - 💞️ I’m looking to collaborate on nadies
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me por redes
+- 😄 Pronouns: Peke
 - ⚡ Fun fact: ...
 
 <!---
